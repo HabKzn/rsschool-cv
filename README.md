@@ -1,1 +1,1 @@
-# rsschool-cv
+https://HabKzn.github.io/rsschool-cv/cv
